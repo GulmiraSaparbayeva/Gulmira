@@ -1,1 +1,1 @@
-# Gulmira
+# Taom yetkazib berish xizmati
